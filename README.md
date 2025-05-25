@@ -1,6 +1,6 @@
 # Color Block Jam Free Coins, Boosters, Lives or Hearts UNLIMITED for ios and android!
 
-🚨🚨 <a href="https://shorturl.at/nuIH3">CLICK HERE FOR UNLIMITED Coins, Boosters, Lives in Color Block for FREE </a>
+🚨🚨 <a href="https://newgenerator.click/mod/pages/colorblockjam.html">CLICK HERE FOR UNLIMITED Coins, Boosters, Lives in Color Block for FREE </a>
 
 
 Boosters are power-ups that provide players with advantages to complete levels faster or with higher scores. Color Block Jam offers various Boosters, such as the Bomb Booster, which clears a cluster of blocks, or the Rainbow Booster, which eliminates all blocks of a specific color. Players can earn Boosters by completing certain levels, logging in daily, or purchasing them with Coins. Using Boosters strategically can make the difference between passing a hard level or getting stuck. Some players prefer to save Boosters for particularly tricky stages, while others use them frequently to maximize their score and progress faster. Boosters add an extra layer of strategy to the game, allowing players to customize their approach based on the level’s difficulty.
